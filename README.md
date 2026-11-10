@@ -1,2 +1,2 @@
-# devil-devil
+# devil from cuphead... hehe
 im gay for the devil from cuphead and i dont know why...
